@@ -5,7 +5,7 @@ Yevika Industries is a lifestyle fashion website showcasing premium collections 
 
 Live Site
 
-Visit Yevika Industries
+Visit Yevika Industries-https://yevikaindustries.com/
 
 Role & Responsibilities
 
